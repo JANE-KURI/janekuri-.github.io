@@ -1,2 +1,2 @@
-# janekuri-.github.io
-Portfolio
+# Portfolio
+
